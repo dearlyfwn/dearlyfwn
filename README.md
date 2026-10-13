@@ -1,5 +1,5 @@
 <div align="center">
 
 
-[strawpage](https://https://sugarang5l.straw.page/) 
+[strawpage](https://sugarang5l.straw.page) 
 
