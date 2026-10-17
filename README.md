@@ -11,7 +11,9 @@
 <br>
 
 [strawpage](https://sugarang5l.straw.page)  <img width="32" height="32" alt="wings" src="https://github.com/user-attachments/assets/5825a4c6-ae54-48c3-8309-b4dcce25039c" />
- [pronouns](https://prns.cc/xnfur)  
+ [pronouns](https://prns.cc/xnfur)       [strawpage 2]( https://dearlyfwn.straw.page)
+
+
 
 
 
