@@ -2,8 +2,6 @@
 
 
 
-
-
 <p align="center">
   <font color="#855d43">" 𝖧𝗈𝗐 𝗋𝗎𝖽𝖾 ! 𝖠𝗇𝖽 𝖨 𝖽𝗈𝗇𝗍 𝖻𝖾𝗅𝗂𝖾𝗏𝖾 𝗍𝗁𝖾𝗋𝖾𝗌 𝖺𝗇𝗒 𝗋𝖾𝗅𝖾𝗏𝖺𝗇𝖼𝖾 𝗐𝗂𝗍𝗁 𝗆𝗒 𝖿𝗂𝗀𝗎𝗋𝖾 𝖺𝗇𝖽 𝗆𝗒 𝗌𝗍𝖺𝗇𝖽𝗂𝗇𝗀 !! 𝖶𝗁𝗈 𝖺𝗋𝖾 𝗒𝗈𝗎 ? "</font>
 </p>
@@ -28,13 +26,30 @@
 
 <br>
 
+
+ c&nbsp; &nbsp; &nbsp;♡&nbsp; &nbsp; &nbsp;h&nbsp;&nbsp;&nbsp;anytime
+ 
+ <br>
+ 
+ &nbsp;&nbsp; ׅ&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  &nbsp;&nbsp;&nbsp;&nbsp;they&nbsp;&nbsp;&nbsp;&nbsp;ノ&nbsp;&nbsp;&nbsp;&nbsp;them&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;she&nbsp;&nbsp;&nbsp;&nbsp;ノ&nbsp;&nbsp;&nbsp;&nbsp;her&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;( ˘͈ ᵕ ˘͈♡)
+
+ <br>
+
+ <br>
+
+꒰ ᧔ෆ᧓ ꒱ 
+
+
 <br>
 
 <br>
 
 <img width="400" height="224" alt="another remake ashley yay" src="https://github.com/user-attachments/assets/bd09dea7-9081-4cec-b396-968478235ba0" />
 
+<br>
 
+<br>
 
+<br>
 
-
+<img width="540" height="63" alt="dearest dividers" src="https://github.com/user-attachments/assets/02107980-1c96-44b1-bbb7-5fefab438afa" />
