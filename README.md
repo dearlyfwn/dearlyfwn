@@ -27,7 +27,8 @@
 <br>
 
 
- c&nbsp; &nbsp; &nbsp;♡&nbsp; &nbsp; &nbsp;h&nbsp;&nbsp;&nbsp;anytime
+ c&nbsp; &nbsp; &nbsp;♡&nbsp; &nbsp; &nbsp;h&nbsp;&nbsp;&nbsp;anytime&nbsp;&nbsp;<img width="19" height="19" alt="aww cute orange ct pixel" src="https://github.com/user-attachments/assets/87b0639e-ebe8-4074-985e-05ef8c9c2092" />
+
  
  <br>
  
