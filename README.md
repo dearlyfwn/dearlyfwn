@@ -41,7 +41,7 @@
 
  <br>
 
-꒰ ᧔ෆ᧓ ꒱ 
+꒰ ᧔ෆ᧓ ꒱ &nbsp;&nbsp;&nbsp;<a href="https://hits.sh/github.com/saharmor/whisper-playground/"><img alt="Hits" src="https://hits.sh/github.com/saharmor/whisper-playground.svg?label=%E2%99%A1&color=b48a77&labelColor=cfc5c5"/></a>
 
 
 <br>
